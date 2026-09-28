@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/vlc-media-player-3-0-23/
 Product Price : Free
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
